@@ -37,6 +37,7 @@ This itinerary solves that problem by providing a day-by-day travel plan, coveri
 Whether you're a solo traveler, couple, or group — this itinerary helps you make the most of your Canada trip.
 
 DEMO VIDEO LINK:- https://drive.google.com/file/d/1PWOtimRI-L9VT467WT8wGiOCdesR7Ysm/view
+
 WEBSITE LINK:- https://canadaguide-emw6iwke.manus.space
 
 
